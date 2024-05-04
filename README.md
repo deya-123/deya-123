@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=+Hi%2C+I%E2%80%99m+Deya+Aldeen+Al-Bettar;I'm+Computer+Engineering;%F0%9F%93%AB+reach+me+send+email+to+albettardeaa%40gmail.com)](https://git.io/typing-svg)
